@@ -6,7 +6,7 @@ Gif that Descibes Me
 
 
 ## About Me
-My names Nicole, but I prefer to go by Nikki! Born and raised in Miami, FL. I have been working with Orange County Fire Rescue as a 911 dispatcher for the past 5 years. I became a cat mom just last year. I enjoy readings books, watching anime, photographing in film, and travel out of the country. 
+My names Nicole, but I prefer to go by Nikki! Born and raised in Miami, FL. I have been working with Orange County Fire Rescue as a 911 dispatcher for the past 5 years. I became a cat mom just last year. I enjoy readings books, watching anime, photograpy, playing volleyball, and traveling out of the country. 
 
 ## Past Coding
 **Absolutely nothing.** *Zero experience* 🫪
